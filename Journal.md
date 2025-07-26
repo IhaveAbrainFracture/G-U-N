@@ -10,3 +10,6 @@ me yapping to taran after gaslighting myself i could not run a ommi-directional 
 
 the onshape history of the doc im using + the worm gear made i used to gaslight myself ( in my defence i took a cross sectional view and thought the work gear was a double sided rack)
 
+# 26/07/25 4h
+
+ive spent 4h just tinkering in cad and i genuinly want to shoot myself this project is unbearably anoying so im benching it for a bit
